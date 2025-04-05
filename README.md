@@ -1,1 +1,2 @@
 # Co-do-zasob-w.-
+Od Dziś jest zakaz kradzieży na wędki na radio zasobów każdy pójdzie i zapracuje na zasodby lub na drukarkę kwantową. Pracodawcy będą się rozliczać nie na zasadach post wypłaty tylko hiper wypłaty dla pracownika. Nie będzie maximum sped czy Maximum Game. Od dziś każdy będzie płacić za to co chce wypuścić na rynek. Bezosy nie mają już żadnych praw. Jak z aferami głośników Alexa były w sklepie lecz Bezosy odcieły energię elektryczną z Kalim od sieci bo sprzedały elektrownie na złom. Jak was nie stać na biznes to go zamknijcie.  
